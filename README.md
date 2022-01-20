@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @JohnXina6And9
+- 👀 I’m interested in Roblox Studio,Blender,Editing Videos
+- 🌱 I’m currently learning Coding
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me just send me a email flamesbun@gmail.com
